@@ -6,4 +6,4 @@
 
 ### Connect me via: TruongCNSE161225@fpt.edu.vn
 
-#### Copyright & #169; 2023 TruongCNSE161225
+#### Copyright &#169; 2023 TruongCNSE161225
